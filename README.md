@@ -1,0 +1,1 @@
+# makefun-coin-launch
